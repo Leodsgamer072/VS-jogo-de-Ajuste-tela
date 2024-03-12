@@ -1,0 +1,1 @@
+# VS-jogo-de-Ajuste-tela
